@@ -84,7 +84,10 @@
 ##**Education and Professional Development**
 ####City University- London, UK
 - Master of Arts in Cultural Policy and Management, October 2011
+
 ####Rutgers University- Newark, NJ
 - Bachelor of Science in Marketing, January 2006
+
 ####Fashion Institute Of Design And Merchandising (FIDM) – LA/ San Francisco, CA 
 - Associate of Arts, Professional Designation in Merchandise Marketing, December 2006
+
